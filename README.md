@@ -30,7 +30,7 @@ https://github.com/Vikash-8090-Yadav/Future.WebNet/assets/114330097/80adb9d8-458
 
 ## **Creator 👦**
 
-[Avdhesh Varshney](https://github.com/Avdhesh-Varshney)
+[Prince Ojha](https://github.com/prince783)
 
 <br>
 
